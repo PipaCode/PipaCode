@@ -34,4 +34,3 @@ Atualmente trabalho como **Programador**, **Analista de Dados** e **Formador de 
 ---
 
 > ✨ **"A educação e a tecnologia são as ferramentas com que moldo o presente para construir o futuro."**
-
